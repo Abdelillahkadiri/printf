@@ -1,1 +1,1 @@
-this is groupe project done by me and my partner .
+This group project is done by me and my partner.
